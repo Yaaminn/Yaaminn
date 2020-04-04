@@ -1,2 +1,2 @@
 # Yaaminn
-Hello there I'm new
+Hello there! 
